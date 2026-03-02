@@ -1,1 +1,1 @@
-# devocional-30-dias
+# devocional-30-dias/secando em 30 dias
