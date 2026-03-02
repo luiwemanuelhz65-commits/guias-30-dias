@@ -1,1 +1,1 @@
-metodo-30-dias
+guias-30-dias
